@@ -1,3 +1,3 @@
-![69dfe6776a8a329db780d9637850f865](https://github.com/user-attachments/assets/ed83c568-07f9-485c-869c-e7d253027959)
+                    my favorite horse leather
+;0![Ảnh chụp màn hình 2024-10-02 112342](https://github.com/user-attachments/assets/a262dd8b-8838-45d4-908e-fceaf52a529b)
 
-;0
